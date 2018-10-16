@@ -1,2 +1,4 @@
 # hello-world
-I actually dont know why I am doing this or creating this repository
+
+
+egula korer ki dorker chilo dada??will u make me understand why I am doing all this???
